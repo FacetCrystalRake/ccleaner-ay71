@@ -1,4 +1,4 @@
-# 
+# premium CCleaner para PC executor é o melhor CCleaner para PC executor com extrator de texto e gestos do mouse. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
